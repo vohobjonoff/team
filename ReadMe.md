@@ -1,0 +1,1 @@
+## BU fileni team bolib ishlaymiz
